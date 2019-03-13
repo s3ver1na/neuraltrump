@@ -4,7 +4,7 @@ Temperature 0.2:
 Here the network was pretty obsessive about repeating certain words: Democrats and Jobs 
 
 	
-	I am pleased to the U.S. and Jobs, Jobs, Jobs, Jobs, Jobs, and the Democrats are the storm with the U.S. is respect to end the same time doing a great job
+I am pleased to the U.S. and Jobs, Jobs, Jobs, Jobs, Jobs, and the Democrats are the storm with the U.S. is respect to end the same time doing a great job'
 
 	The Democrats are making a big disgraceful process of people will be a great people are not include the Democrats are the ones who were made up stories in the Wall. I was long and security at the @WhiteHouse! https://t.co/paWEiGHGiH
 
